@@ -1,5 +1,5 @@
 # 💫 About Me:
-Data Science Intern, Master's in Statistics, Self Learner, Fast Learner, Python developer
+Data Science Enthusiast, Master's in Statistics, Self Learner, Fast Learner, Python developer
 
 
 ## 🌐 Socials:
